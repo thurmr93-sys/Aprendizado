@@ -1,1 +1,3 @@
 # Aprendizado
+Aprendendo a como usar o GITHUB meu brother...
+Cuidado com seus pés!! 👀👀
